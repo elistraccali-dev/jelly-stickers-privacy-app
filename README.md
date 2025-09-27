@@ -1,1 +1,0 @@
-# jelly-stickers-privacy-app
